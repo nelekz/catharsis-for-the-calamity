@@ -1,1 +1,2 @@
-# catharsis-for-the-calamity
+
+### THIS PROJECT AND DESCRIPTION IS A WORK IN PROGRESS!
